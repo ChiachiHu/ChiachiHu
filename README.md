@@ -5,7 +5,7 @@ I'm chiachi
 
 🎓I'm a graduate student at NJUST
 
-📍Nanjing,Jiangsu,PRC
+📍Nanjing , Jiangsu , PRC
 
 # Social media
-🧵[threads](https://www.threads.net/@chiachi_hu)
+🧵[threads](https://www.threads.com/@chia_chihu)
