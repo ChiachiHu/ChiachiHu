@@ -7,5 +7,4 @@ I'm chiachi
 
 📍Nanjing , Jiangsu , PRC
 
-# Social media
-🧵[threads](https://www.threads.com/@chia_chihu)
+
